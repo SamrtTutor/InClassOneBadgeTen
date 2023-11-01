@@ -1,2 +1,2 @@
 # InClassOneBadgeTen
-In class craetion
+In class craetion - Hi students, Listen!
